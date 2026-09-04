@@ -48,7 +48,7 @@
 ### Name: GANANANTH H
 ### Register Number: 212225230070
 
-![Uploading image.png…]()
+<img width="1917" height="1025" alt="image" src="https://github.com/user-attachments/assets/18e2fdf3-9eaf-456c-940f-16bca10c278a" />
 
 
 ## Result: 
